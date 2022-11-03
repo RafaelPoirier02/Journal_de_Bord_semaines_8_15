@@ -3,6 +3,7 @@
 
 ### Intérêt
 Quelle partie de la conférence t'a intéressé le plus? Pourquoi? (2 à 3 lignes) 
-
+ 
 ### Travail
 Suite à la conférence, aimerais-tu travailler dans le monde du jeu vidéo? Si oui, qu'est-ce qui t'a motivé dans la conférence et si non, pourquoi? (2 à 3 lignes)
+Oui, car j'aime beaucoup le travaille d'équipe et de se communiquer. De plus, j'aime beaucoup 
